@@ -5,3 +5,7 @@ https://teams.microsoft.com/l/meetup-join/19%3ameeting_M2EzMTU3ZDItODk3NS00N2UyL
 
 
 https://event.on24.com/wcc/r/4266173/CD6559A77F981D9D6ABECCF3DAA58905
+
+-----------------
+Power Platform - (9th - September)
+https://chat.whatsapp.com/F4bDrAFn946AroNrnT7ghf
